@@ -1,4 +1,5 @@
-# Soundideaz-Academy
+
+Best Sound Engineering Courses in India | Soundideaz Academy in Mumbai
 One of the best Sound Engineering courses in India is curated by Soundideaz Academy.The course consists of both Fundamentals and practical application in a studio setup. Here the course is being offered with specialization topics, which the student can master.The students have an option to choose any one of the specialization:
 
 1- Sound Engineering with Specialization- Music Production
